@@ -1,1 +1,2 @@
-# DES_KI_B
+Nama : Ihsan Widagdo  
+NRP : 5025211231
